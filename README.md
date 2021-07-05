@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yeu-rioual
+- 👀 I’m interested in robotics
+- 🌱 I’m currently learning how to behave in high society
+- 💞️ I’m looking to collaborate on establishing world peace
+- 📫 How to reach me: Let's try to guess my mail
